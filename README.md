@@ -1,6 +1,5 @@
-Ya boy Agross. 
-I like memes, movies and video games. 
-I'm currently learning c++
+Ya boy. 
+Media enjoyer, currently at UNI 
 
 
 

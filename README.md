@@ -1,5 +1,4 @@
-Ya boy. 
-Media enjoyer, currently at UNI 
+Ya boy
 
 
 
